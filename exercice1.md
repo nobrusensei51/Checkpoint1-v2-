@@ -1,4 +1,4 @@
-![Capture d'écran 2024-10-29 230956](https://github.com/user-attachments/assets/f09345bb-8920-4b7a-882d-601fcb168cbc)
+![Capture d'écran 2024-10-29 231552](https://github.com/user-attachments/assets/0f9a17e2-3483-4f63-8ee7-505f5207ae29)
 
 ![Capture d'écran 2024-10-28 221111](https://github.com/user-attachments/assets/f002d0aa-8636-44d8-865e-4b93eb0d43b2)
 
