@@ -13,3 +13,9 @@
 ![Capture d'écran 2024-10-29 232135](https://github.com/user-attachments/assets/af3b9857-c701-4a2a-83c5-71279af1e999)
 
 ![Capture d'écran 2024-10-29 232532](https://github.com/user-attachments/assets/cd82759a-73d6-4ce9-b364-b4f3105c7543)
+
+![Capture d'écran 2024-10-29 233633](https://github.com/user-attachments/assets/8cf284c9-a078-4698-80d9-4b42738ce87c)
+montage 
+![Capture d'écran 2024-10-29 233633](https://github.com/user-attachments/assets/757ecdf4-66ac-45b5-8e63-5ac7c729c7bd)
+
+![Capture d'écran 2024-10-29 234732](https://github.com/user-attachments/assets/5b74df40-9767-4a9d-8018-89f20f95a1ec)
