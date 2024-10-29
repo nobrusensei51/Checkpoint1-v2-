@@ -5,3 +5,7 @@
 ![Capture d'écran 2024-10-28 221216](https://github.com/user-attachments/assets/52f69e20-72ef-439d-8a26-5bf8efadf273)
 
 ![Capture d'écran 2024-10-29 231256](https://github.com/user-attachments/assets/2c27d0df-52c8-4e29-b8b1-5109c015f426)
+
+![Capture d'écran 2024-10-29 231426](https://github.com/user-attachments/assets/3cff4942-6ddd-4a1d-a5b5-a68833d4251a)
+
+![Capture d'écran 2024-10-28 222523](https://github.com/user-attachments/assets/47336b41-def4-497e-80d6-619a4de027df)
